@@ -1,0 +1,2 @@
+# -
+some people, who do not have a roof over their heads, are not getting two handfuls of rice at a time.  Maybe our situation is a little better than theirs.  With a little help from us we can put a little food in their mouths.  So our team "আশার আলো"  requests to everyone, please come forward with your little financial help can put food in the mouths of some people.  The name of the helper must be mentioned in our post. 
